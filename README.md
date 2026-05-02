@@ -1,3 +1,6 @@
+<img width="1702" height="630" alt="image" src="https://github.com/user-attachments/assets/57d33990-bf17-42c6-8724-00b80c9cb196" />
+
+
 # ⚡ Khanhdevxyz (Đinh Văn Khánh) ⚡
 
 <p align="center">
